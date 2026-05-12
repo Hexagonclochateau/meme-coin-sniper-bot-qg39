@@ -1,4 +1,4 @@
-# 
+# ultimate Sniper for meme coin sniper bot | back-running & volume-spike-detection offers the most advanced meme coin sniper bot, with back-running and volume-spike-detection. Ideal
 
 
 
